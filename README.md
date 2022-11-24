@@ -1,1 +1,1 @@
-- 👋 Hi, I’m d4rkdu0
+- Hey 👋🏽, I'm [d4rkdu0](https://www.xsser.cc)!
